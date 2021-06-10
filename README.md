@@ -1,1 +1,1 @@
-# https://Eternal.cafe.github.io/
+# https://eternal.cafe.github.io/
